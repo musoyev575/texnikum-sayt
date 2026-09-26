@@ -1,0 +1,2 @@
+# texnikum-sayt
+yuq
